@@ -1,1 +1,1 @@
-#please upload updated world file when you finish playing unless I (zycerak) am hosting
+please upload updated world file when you finish playing unless I (zycerak) am hosting
