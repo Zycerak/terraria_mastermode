@@ -1,1 +1,1 @@
-# terraria_mastermode
+#please upload updated world file when you finish playing unless I (zycerak) am hosting
